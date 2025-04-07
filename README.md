@@ -133,7 +133,8 @@ Right Click/ Press and hold To Save.
 ![image](https://github.com/user-attachments/assets/569f4605-e9ae-45e4-aa35-5644c1159b38)
 ![image](https://github.com/user-attachments/assets/ff87ea0e-4db5-480a-9144-e440bc2bfae3)
 
-# iOS 15 / iPadOS 15
+# More Wallpapers At
+https://github.com/Loub7702YT/AppleWalls/edit/main/README2.md
 
 
 
